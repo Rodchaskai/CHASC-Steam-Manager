@@ -2,4 +2,6 @@
 
                   DISCORD.GG/RODCHASKAI
 
-🌟Uygulama tamamen ücretsizdir. Dosyaları değiştirerek yeniden dağıtmak yasaktır.🌟
+🌟Uygulama tamamen ücretsizdir.    🌟       !YENİDEN DAĞITMAK YASAKTIR!                  🌟    
+Dosyaların değiştirilme ihtimaline karşın kimseden bu projeyi asla ve asla indirmeyin, tek orijinal sayfamız burasıdır.🌟
+🌟                      🌟                              🌟                🌟                        🌟

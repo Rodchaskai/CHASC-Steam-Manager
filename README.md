@@ -2,6 +2,8 @@
 
                   DISCORD.GG/RODCHASKAI
 
-🌟Uygulama tamamen ücretsizdir.  !YENİDEN DAĞITMAK YASAKTIR!                  
-Dosyaların değiştirilme ihtimaline karşın kimseden bu projeyi asla ve asla indirmeyin, tek orijinal sayfamız burasıdır.
-DETAILS: LICENSE.MD
+🌟 Uygulama tamamen ücretsiz, reklamsız, virüssüzdür! açık kaynak kodları kullanıcıların güvenliği için vardır, çalmanız için değil :)
+
+🌟 COPYCAT GÖRÜRSENİZ BANA BİLDİRİN! 
+🌟 UYGULAMAYI YENİDEN DAĞITMAK YASAKTIR. 3-5 FİLİGRAN VE TASARIM DEĞİŞİP UYGULAMAYI BEN YAPTIM DEMEYE KALKMAYIN. 
+🚀 DETAILS: LICENSE.MD

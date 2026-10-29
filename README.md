@@ -1,4 +1,4 @@
-🚀 yan taraftaki releases kısmından uygulamamıza erişebilirsiniz, keyifli kullanımlar!
+🚀 yan taraftaki releases kısmından son sürümü yükleyip kurarak uygulamamıza 7/24 kesintisiz erişebilirsiniz, keyifli kullanımlar!
 
                   DISCORD.GG/RODCHASKAI
 
